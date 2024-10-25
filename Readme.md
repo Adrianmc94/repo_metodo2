@@ -1,4 +1,4 @@
-# Metodo 2 clonado ❤️‍🔥
+# Metodo 2 clonado ❤️‍🔥 💥🦍👹💦🔥⚠️
 
 ### Adrian Miguez 1DAM
 
