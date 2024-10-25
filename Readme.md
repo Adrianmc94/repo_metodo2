@@ -1,0 +1,1 @@
+Clonamos el el repositorio, creamos el nuevo repositorio, lo añadimos por el terminal, en intelligent abrimos el readme y hacemos push cambiando el irigin con el enlace del repositorio.
